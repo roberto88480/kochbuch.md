@@ -11,11 +11,15 @@
 - 1/2 TL Salz
 - 1 Prise Pfeffer
 
-optionale Zutaten:
+### optionale Zutaten:
 - 1 Prise Oregano
+- 1 Prise Zwiebelpulver
+- 1 Prise Knoblauchpulver
+- 1 Prise Paprikapulver
 - Basilikum
 - frische Tomaten
 - getrockete Tomaten
+- Chillischote oder Chillipuler
 
 ## Zubereitung
 
