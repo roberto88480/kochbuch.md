@@ -2,9 +2,9 @@
 
 ## Zutaten
 ### Für den Teig 
-- 1 Becher Sahne 
-- 2 Becher Mehl 
-- 1 Becher Zucker 
+- 1 Becher Sahne (200 ml)
+- 2 Becher Mehl (ca. 260g)
+- 1 Becher Zucker (ca. 190g)
 - 4 Eier 
 - 1 Tüte Vanillinzucker 
 - 1 Tüte Backpulver 
@@ -14,7 +14,7 @@
 
 - 125g Butter 
 - 200g Mandelblättchen 
-- 1 Becher Zucker 
+- 1 Becher Zucker (ca. 190g)
 - 1 Tüte Vanillinzucker 
 - 6 Esslöffel Milch 
 
