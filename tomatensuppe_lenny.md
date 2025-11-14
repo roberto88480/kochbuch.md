@@ -10,7 +10,7 @@
 - Balsamico (weiß) 
 - 1 rote Zwiebel
 ## Zubereitung
-1. Große Tomaten vierteln, mit Kurschtomaten auf ein Backblech. Großzügig mit Olivenöl beträufeln, Salzen und Pfeffern. 
+1. Große Tomaten vierteln, mit Kirschtomaten auf ein Backblech. Großzügig mit Olivenöl beträufeln, Salzen und Pfeffern. 
 2. 200°, 30 Minuten (bis die Kirschtomaten weich werden) 
 3. Das Ciabatta in Scheiben schneiden und mit Öl beträufeln. 
 4. In einem Topf die gehackte Zwiebel mit 2 EL Balsamico andünsten. 
