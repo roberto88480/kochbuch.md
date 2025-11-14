@@ -2,7 +2,7 @@
 ## Zutaten
 - 250g Butter 
 - 150g Zucker 
-- 1 Pkg vanillezucker 
+- ½ Pkg vanillezucker 
 - 6 Eier 
 - 500g Mehl 
 - 1Pkg Backpulver 
