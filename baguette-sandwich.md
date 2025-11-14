@@ -5,10 +5,10 @@
 - Salat
 - Tomate
 - Zwiebel
-- Gurke oder Gewürgurke
+- Gurke oder Gewürzgurke
 - Remoulade
 - ...
 ## Zubereitung
 - Baguette halbieren.  
-- Beide hälften mit Käse belegen und für ca 10 Minuten in den Ofen.  
+- Beide Hälften mit Käse belegen und für ca 10 Minuten in den Ofen.  
 - Mit Salat, Tomate, Gurke, Remoulade etc. belegen 
